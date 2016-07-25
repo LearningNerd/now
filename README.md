@@ -23,7 +23,7 @@
 - Go bouldering at the gym 3 times a week
 - Go hiking twice a week
 - Eat healthy home-cooked meals 25 days of the month
-- 
+
 
 ## The Big Picture
 *(Where I'm at in my life, in a nutshell. This section won't be updated as often.)*
